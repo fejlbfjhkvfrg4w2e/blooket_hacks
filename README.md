@@ -1,2 +1,1 @@
-# blooket_hacks
-Blooket hacks for tut go to r0grand in tikok
+=Just follow my steps in tiktok my user is r0grand
